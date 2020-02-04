@@ -72,3 +72,4 @@ Dorian Wu     | yit323487@163.com             |
 Cathy Li      | Shipu.Li@outlook.com          |
 Olivier Zhang | olenheim@hotmail.com          |
 Brown Jiang   | jiangyuanshu2003@gmail.com    |
+Xgaka         | xgakamusic@gmail.com          |
